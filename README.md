@@ -1,2 +1,2 @@
 # story2
-life
+life is alasdkfjal;sdk
